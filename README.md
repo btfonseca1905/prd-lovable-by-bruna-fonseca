@@ -1,0 +1,1 @@
+# prd-lovable-by-bruna-fonseca
